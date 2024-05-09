@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @IvanAmoro12
 - 👀 I’m interested in cybersecurity
+- looking forward to working at Safaricom, Kenya 
 - 🌱 I’m currently learning at Dedan Kimathi University of Technology
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: amoroochenge@gmail.com...Whatsapp 0112828327
 - 😄 Pronouns: Mr
 - ⚡ Fun fact: Coding is fun...
